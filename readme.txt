@@ -1,3 +1,0 @@
-kharisma elan
-ok
-ok
